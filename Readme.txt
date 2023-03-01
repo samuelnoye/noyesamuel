@@ -5,4 +5,3 @@ and take on new challenges.
 
 I feel a have strong programming skills, experience with iOS development, attention to detail, ability to work in a team, problem-solving skills and very innovative.
 
-Portofolio Link: https://noyesamuel.netlify.app/
